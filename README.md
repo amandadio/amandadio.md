@@ -1,5 +1,5 @@
 # Olá, eu sou a Amanda! ✨ 
-#### Sou estudante de psicologia, atualmente estou no ultimo semestre. Atualmente descobri uma paixão por tecnologia, já gostava antes, mas sempre achava que era dificil demais para mim; não é, tenho gostado muito de aprender pela DIO. 
+#### Sou estudante de psicologia, atualmente estou no ultimo semestre. Descobri uma paixão por tecnologia, já gostava antes, mas sempre achava que era dificil demais para mim; não é, tenho gostado muito de aprender pela DIO. 
 #### Gosto muito de aprender coisas novas, então  estou sempre procurando e pesquisando coisas diferentes, pois como diria Einstein: *Lembre-se que as pessoas podem tirar tudo de você, menos o seu conhecimento.* 
 
 ## 📲 Aqui estão meus contatos:
